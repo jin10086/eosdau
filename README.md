@@ -6,4 +6,10 @@
 
 ![](http://ww1.sinaimg.cn/large/cfc08357gy1fw8wmynbr1j224q17ck1n.jpg)
 
-具体细节请发送邮件到 eosdau@foxmail.com
+保证雷达排名
+
+- 第一 300EOS/每天
+- 第二 200EOS/每天
+- 第三 100EOS/每天
+
+长期有优惠,具体细节请发送邮件到 eosdau@foxmail.com
