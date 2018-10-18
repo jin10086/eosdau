@@ -12,4 +12,6 @@
 - 第二 200EOS/每天
 - 第三 100EOS/每天
 
+新dapp榜单全部半折
+
 长期有优惠,具体细节请发送邮件到 eosdau@foxmail.com

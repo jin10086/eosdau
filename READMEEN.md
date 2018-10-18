@@ -12,4 +12,6 @@ Guaranteed dappradar ranking
 - second **200EOS/day**
 - third **100EOS/day**
 
+New dapp all half fold
+
 For long-term contracts, there are discounts, please send an email to eosdau@foxmail.com
