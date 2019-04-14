@@ -1,4 +1,4 @@
-## 欢迎来到EOS dapp刷量平台 [EN](READMEEN.md)
+## 欢迎来到EOS&TRX&ETH dapp刷量平台 [EN](READMEEN.md)
 
 我们可以帮你提供长期的,稳定的日活。
 

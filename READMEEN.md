@@ -1,4 +1,4 @@
-## Welcome to the EOS Brush Day Service
+## Welcome to the EOS&TRX&ETH Brush Day Service
 
 We can help you provide long-term, stable day activities.
 
