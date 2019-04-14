@@ -15,3 +15,7 @@ Guaranteed dappradar ranking
 New dapp all half fold
 
 For long-term contracts, there are discounts, please send an email to eosdau@foxmail.com
+
+WeChat: ai1019855680
+
+Telegram: +8613250954065
